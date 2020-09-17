@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I am Nikhil 👋
 
 - 🔭 I’m currently working on ...making my Github profile more projects-rich💰
 - 🌱 I’m currently learning ...Android, Kotlin, Jetpack

@@ -5,6 +5,7 @@
 - 👯 I’m looking to collaborate on ...Android projects
 - 💬 Ask me about ...anything related to Android
 - 📫 How to reach me: ...nikhilmht33@gmail.com
-- 😄 Pronouns: ...He/Him, Ambivert
+- 😄 Pronouns: ...He/Him, Autodidactic, Ambivert
 - ⚡ Fun fact: ..."Code cleanliness is next to godliness" 😀
 
+🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/nikhil-mehta/)

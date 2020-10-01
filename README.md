@@ -10,4 +10,4 @@
 
 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/nikhil-mehta/)
 
-> :mailbox_with_mail: &nbsp; Feel free to reach me [out](mailto:nikhilmht33@gmail.com)
+> :mailbox_with_mail: &nbsp; Feel free to reach out to me on my [email](mailto:nikhilmht33@gmail.com)

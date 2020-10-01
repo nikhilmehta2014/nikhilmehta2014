@@ -9,3 +9,5 @@
 - ⚡ Fun fact: ..."Code cleanliness is next to godliness" 😀
 
 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/nikhil-mehta/)
+
+> :mailbox_with_mail: &nbsp; Feel free to reach me [out](mailto:nikhilmht33@gmail.com)
